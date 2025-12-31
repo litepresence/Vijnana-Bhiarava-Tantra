@@ -2,6 +2,9 @@
 
 # Vijñāna Bhairava Tantra 
 ## The Radiance of Direct Recognition
+### A contemporary translation
+
+
 ### Editorial Conventions
 
 This edition of the Vijñāna Bhairava Tantra draws primarily from Swami
